@@ -10,4 +10,4 @@
 
 [《西二旗程序员杀人事件》](https://www.jianshu.com/p/f9b3c913ee47)
 
-[《一个三流写手的自我修养》](https://www.jianshu.com/p/83c17da14ba0)
+[《一个三流写手的自我修养》](https://www.jianshu.com/p/c3560e738b4f)
