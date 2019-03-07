@@ -8,6 +8,6 @@
 
 或者来两个短篇感受一下画风：
 
-[《西二旗程序员杀人事件》](https://www.jianshu.com%2Fp%2Ff9b3c913ee47)
+[《西二旗程序员杀人事件》](https://www.jianshu.com/p/f9b3c913ee47)
 
 [《一个三流写手的自我修养》](https://www.jianshu.com/p/83c17da14ba0)
